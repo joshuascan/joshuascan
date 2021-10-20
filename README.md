@@ -1,4 +1,4 @@
-### Hi there. My name's Josh and I'm a musician turned web developer. 👋
+### Hi there. My name's Josh and I'm an eager to learn web developer. 👋
 
 A bit about me...
 
